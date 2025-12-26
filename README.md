@@ -39,7 +39,6 @@
 ![w](https://64.media.tumblr.com/83c783b879c707f59a8717e9a10cfda3/d2bf10545376622a-3a/s250x400/be1c45390dbc342d4a8314d33fd02187d58380a4.gifv)
 ![w](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/542e9975-e6a8-4c43-a772-059cbf61b788/df2dxmr-46f79b34-d3b0-40f2-9d5c-5c907360fd02.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzU0MmU5OTc1LWU2YTgtNGM0My1hNzcyLTA1OWNiZjYxYjc4OFwvZGYyZHhtci00NmY3OWIzNC1kM2IwLTQwZjItOWQ1Yy01YzkwNzM2MGZkMDIuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.fU8tITn9m1WMWxUsGL-6ZCkjdxWcctfFNkutr76RF0E)
 ![w](https://64.media.tumblr.com/fef73f6e41bd21177a19e52d98418cf9/acbffc6c7e51333b-01/s250x400/51447432ef333fe49b15bc4177a66df98c4c9318.gifv)
-![w](https://external-media.spacehey.net/media/spMWUC6dTlc0VA2LXDILkXSxnJr7mkyP98i1VdluV1AU=/https://blinkies.cafe/b/blinkiesCafe-un.gif)
 ![w](https://external-media.spacehey.net/media/sOSd5CLhlOhsQQOp1eolaflKmVNFovyAXae55jn1Z19U=/https://64.media.tumblr.com/8d1fae45a8241c27e3b2d498ab9c6743/627051517b6c9511-54/s250x400/7298c33a5b3953bf6c9fded1a91679eb0166e551.gifv)
 ![w](https://adriansblinkiecollection.neocities.org/g78.gif)
 ![w](https://adriansblinkiecollection.neocities.org/g95.gif)
